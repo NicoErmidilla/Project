@@ -88,7 +88,7 @@ promote well-being for all at all ages”.
 
 - Execution: 3
 
-- Originality: 3
+- Originality: 2
 
 - Overall Impression: 2
 
